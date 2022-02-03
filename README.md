@@ -1,2 +1,5 @@
-# ultimate-hokage-duel-codes-cheats-unlimited-diamonds
-Ultimate Hokage Duel Codes and Cheat for unlimited diamonds tips and tricks
+# Ultimate Hokage Duel Codes and Cheat for unlimited diamonds tips and tricks
+
+Ultimate Hokage Duel Codes and Cheat for unlimited diamonds tips and tricks - If the Ultimate Hokage Duel codes are not enough to persuade you to join the social circle and increase more friends, another reason may be. When playing the game in story mode, you can complete it yourself, but you will also encounter some levels you can't complete. With this in mind, you may want to play these levels with your allies. Gather your friends on your list and note that all levels in story mode can be played in single or multiplayer mode. Whether you play alone or with allies, the rules are basically the same. For example, the starting mode of the combination is the same, but the difference here is that your other two hero companions are controlled by humans, not artificial intelligence. Make sure everyone agrees and do their best to win the battle. You may be lucky to get diamonds, although this is a fairly rare event that you shouldn't always count on.
+
+<a href="https://windmod.icu/ultimate-hokage-duel/">check here</a>
